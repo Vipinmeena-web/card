@@ -12,6 +12,27 @@ https://vipinmeena-web.github.io/card/prompt9
 
 https://vipinmeena-web.github.io/card/prompt10
 
+https://vipinmeena-web.github.io/card/prompt11
+
+https://vipinmeena-web.github.io/card/prompt12
+
+
+https://vipinmeena-web.github.io/card/prompt14
+
+
+https://vipinmeena-web.github.io/card/prompt15
+
 https://vipinmeena-web.github.io/card/
 
 https://vipinmeena-web.github.io/card/
+
+https://vipinmeena-web.github.io/card/
+https://vipinmeena-web.github.io/card/
+
+https://vipinmeena-web.github.io/card/
+
+https://vipinmeena-web.github.io/card/
+
+https://vipinmeena-web.github.io/card/
+https://vipinmeena-web.github.io/card/
+
