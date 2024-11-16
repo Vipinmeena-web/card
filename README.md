@@ -45,7 +45,7 @@ https://vipinmeena-web.github.io/card/week--3
 
 https://vipinmeena-web.github.io/card/week--4
 
-https://vipinmeena-web.github.io/card/
-https://vipinmeena-web.github.io/card/
+https://vipinmeena-web.github.io/card/web1
+https://vipinmeena-web.github.io/card/week--5
 https://vipinmeena-web.github.io/card/
 
