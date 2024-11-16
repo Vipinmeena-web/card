@@ -43,6 +43,7 @@ https://vipinmeena-web.github.io/card/prompt-26
 
 
 https://vipinmeena-web.github.io/card/prompt-27
+https://vipinmeena-web.github.io/card/prompt-29
 
 https://vipinmeena-web.github.io/card/week--2
 
