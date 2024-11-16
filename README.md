@@ -6,11 +6,11 @@ https://vipinmeena-web.github.io/card/prompt6
 
 https://vipinmeena-web.github.io/card/prompt7
 
-https://vipinmeena-web.github.io/card/
+https://vipinmeena-web.github.io/card/prompt8
 
-https://vipinmeena-web.github.io/card/
+https://vipinmeena-web.github.io/card/prompt9
 
-https://vipinmeena-web.github.io/card/
+https://vipinmeena-web.github.io/card/prompt10
 
 https://vipinmeena-web.github.io/card/
 
