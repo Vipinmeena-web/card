@@ -27,7 +27,8 @@ https://vipinmeena-web.github.io/card/prompt16
 https://vipinmeena-web.github.io/card/prompt17
 
 https://vipinmeena-web.github.io/card/prompt18
-https://vipinmeena-web.github.io/card/prompt119
+https://vipinmeena-web.github.io/card/prompt-19
+
 
 https://vipinmeena-web.github.io/card/prompt20
 
