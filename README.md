@@ -55,4 +55,13 @@ https://vipinmeena-web.github.io/card/web1
 https://vipinmeena-web.github.io/card/week-5
 https://vipinmeena-web.github.io/card/week--6/week--6
 
+https://vipinmeena-web.github.io/card/week--7
+
+https://vipinmeena-web.github.io/card/week--8
+
+https://vipinmeena-web.github.io/card/
+
+https://vipinmeena-web.github.io/card/
+
+
 
