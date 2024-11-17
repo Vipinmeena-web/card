@@ -55,11 +55,11 @@ https://vipinmeena-web.github.io/card/prompt-26
 
 https://vipinmeena-web.github.io/card/prompt-27
 
-https://vipinmeena-web.github.io/card/
+https://vipinmeena-web.github.io/card/prompt-28
 
 https://vipinmeena-web.github.io/card/prompt-29
 
-https://vipinmeena-web.github.io/card/
+https://vipinmeena-web.github.io/card/prompt-30
 
 https://vipinmeena-web.github.io/card/week--2
 
